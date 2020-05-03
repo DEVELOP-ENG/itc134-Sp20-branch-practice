@@ -31,4 +31,10 @@ Noel looked angry, his body blushing like a pickled, panicky piano.
 
 Then Noel came inside for a nice drink of beer.
 
+After consuming the beer Noel began to vommit, and continued to feel ill to his stomache. 
+
+He questioned "What kind of beer is this?!" But shortly after would faint. 
+
+After awakening he realized it was all a dream, and he didn't have ugly eyes or grubby ankles. 
+
 THE END
