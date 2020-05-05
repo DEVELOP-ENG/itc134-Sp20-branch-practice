@@ -1,7 +1,7 @@
 # itc134-Sp20-branch-practice
  This is a repo we used to practice branching and merging
 
-Jovanni Rodriguez looked at the magic map in his hands and felt happy.
+Jovanni Rodriguez looked at the magic map in his hands and felt like a genie in a bottle.
 
 He walked over to the window and reflected on his damp surroundings. He had always loved urban Madrid with its vivacious, villainous volcanoes. It was a place that encouraged his tendency to feel happy.
 
