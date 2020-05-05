@@ -3,7 +3,7 @@
 
 Jovanni Rodriguez looked at the magic map in his hands and felt like a genie in a bottle.
 
-He walked over to the window and reflected on his damp surroundings. He had always loved urban Madrid with its vivacious, villainous volcanoes. It was a place that encouraged his tendency to feel happy.
+He walked over to the window and reflected on his damp surroundings. And He had always loved urban Madrid with its vivacious, villainous volcanoes. It was a place that encouraged his tendency to feel happy.
 
 Then he saw something in the distance, or rather someone. It was the figure of Noel Eng. Noel was a spiteful patient with ugly eyes and grubby ankles.
 
@@ -33,7 +33,7 @@ Then Noel came inside for a nice drink of beer.
 
 After consuming the beer Noel began to vommit, and continued to feel ill to his stomache. 
 
-He questioned "What kind of beer is this?!" But shortly after would faint. 
+He questioned "What kind of beer is this?" But shortly after would faint. 
 
 After awakening he realized it was all a dream, and he didn't have ugly eyes or grubby ankles. 
 
