@@ -37,4 +37,8 @@ He questioned "What kind of beer is this?" But shortly after would faint.
 
 After awakening he realized it was all a dream, and he didn't have ugly eyes or grubby ankles. 
 
+Noel is actually pretty awesome, and he likes to go fishing.
+
+They say you can give a man a fish, or you can teach him to fish. 
+
 THE END
